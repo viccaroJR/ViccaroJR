@@ -9,4 +9,4 @@ alurastartestudante@email.com
 
 @juliaviccaro
 
-![](https://tenor.com/pt-BR/view/cristiano-ronaldo-ronaldo-smile-thumbs-up-cr7-gif-15869914211329762155)
+![](https://media1.tenor.com/m/3D1C5I4742sAAAAC/cristiano-ronaldo-ronaldo.gif)
